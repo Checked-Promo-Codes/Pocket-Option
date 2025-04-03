@@ -28,6 +28,8 @@
 
 <p>*Clicking the link will take you to the official Pocket Option website.</p>
 
+<a href="https://u3.shortink.io/register?utm_source=affiliate&a=c59LWc8jiSGGmC&ac=kostya-pseo"><img src="https://affiliate.pocketoption.com/uploads/banners/025-QT-EN-320x50-03.jpg"/></a>
+
 <p>With online trading becoming increasingly competitive, every advantage helps. By using TKC145, you’ll have extra funds, allowing for more trades, better risk management, and increased profit opportunities. Don’t miss this chance to boost your trading capital instantly.</p>
 
 <h2>How to Redeem Your Pocket Option Bonus</h2>
@@ -63,7 +65,7 @@
 </ul>
 
 <p>Pocket Option is designed for both beginners and experienced traders, offering a smooth and efficient trading experience.</p>
-
+<a href="https://u3.shortink.io/register?utm_source=affiliate&a=c59LWc8jiSGGmC&ac=kostya-pseo"><img src="https://affiliate.pocketoption.com/uploads/banners/001-QT-EN-320x50-05.jpg"/></a> 
 <h2>Final Thoughts</h2>
 <p>Pocket Option provides a trusted trading environment, quick withdrawals, and exciting bonuses. By using promo code TKC145, you can instantly double your deposit and gain a competitive edge in trading.</p>
 
