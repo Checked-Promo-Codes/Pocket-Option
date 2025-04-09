@@ -85,7 +85,7 @@
 <a href="https://u3.shortink.io/register?utm_source=affiliate&a=c59LWc8jiSGGmC&ac=kostya-pseo">
   <img 
     src="https://affiliate.pocketoption.com/uploads/banners/001-QT-EN-320x50-05.jpg" 
-    alt="Pocket Option Promo Code" 
+    alt="Pocket Option Bonus Code" 
     data-alt2="Get a 60 Deposit Bonus" />
 </a>
 <h2>Final Thoughts</h2>
