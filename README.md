@@ -107,6 +107,11 @@
 </table>
 
 <p>If you’re serious about online trading, don’t miss this exclusive offer! Claim your 60% deposit bonus today and start trading with more capital for greater profits!</p>
-
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
 </body>
 </html>
